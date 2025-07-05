@@ -1,1 +1,2 @@
 # QuickNotes-portfolio
+Team Crit (short for “Critical”) chose this logo to reflect the essence of a “critical hit” a term widely recognized in gaming culture. The bold “Crit” text represents the team’s name and impact, while the star symbol above signifies a powerful strike or standout moment, commonly associated with critical hits in various games. This visual identity captures the team’s sharp, standout performance and roots in gaming.
